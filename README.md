@@ -1,12 +1,12 @@
 # My-Greatest-Fear.md
 **My greatest fear is about our future generation. I  worry they will have to live in a world that is far more broken than the one we are already living in.**
 ### Climate
-Seeing how we are constantly cutting down trees,how each person leaves behind a massive carbon foot print,how we waste food and water without any second thought or guilt,
+Seeing how we are constantly cutting down trees,how each person leaves behind a massive carbon footprint,how we waste food and water without any second thought or guilt,
 and build endless skyscrapers leaving no space for nature. We are a deeply unsustainable future.
 
 They may have to live in a world that has no fresh water. The air they will breathe in will be even more polluted. Icebergs will melt;
-drowning costlines slowly and silently . That will cost people their homes, flooding will also likely affect buisnesses and tourism in costal cities.
-In situations like this people who go to shelters might also face health issues. Temeperatures will raise, and maybe unlivble cities will become the new norm.
+drowning costlines slowly and silently. That will cost people their homes, flooding will also likely affect buisnesses and tourism in costal cities.
+In shelters, people might face health issues. Temeperatures will raise, and maybe unlivble cities will become the new norm.
 
 #### So... can we do something to change it ?
 Maybe.
